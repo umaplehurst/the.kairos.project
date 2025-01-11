@@ -8,6 +8,7 @@ In the symphony of existence, where the echoes of the Big Bang still reverberate
 
 - (2024-09-16): "[Searching for the Unspeakable](20240916/README.md)"
 - (2024-10-11): "[Mandala of Consciousness](20241011/README.md)"
+- (2025-01-11): "[Deleuze on Masochism: Joy and Alignment](20250111/README.md)"
 
 ## Awakening
 
